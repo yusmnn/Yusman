@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yuss-mn
+- 👋 Hi, I’m @yusmnn
 - 🤓 I am a student at Indonesian Muslim University
 - you can find out more about me on ig @yusm.n
 
